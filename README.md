@@ -2,7 +2,7 @@
 
 I'm a **software engineer** at [**Headway**](https://headway.co/) building products to help make mental health care affordable and accessible
 
-* 🏔 I'm a fan of the outdoors and hiking in the Seattle, WA area
+* 🏔 I'm a fan of being outside at parks, especially with my picnic blanket 🌻
 * 🦮 I'm a happy dog parent *(his name is Denver 🐶)*
 
 <!---
